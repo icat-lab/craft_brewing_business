@@ -1,1 +1,1 @@
-# craft_brewing_business
+# リサーチアジェンダ: クラフト醸造ビジネス
